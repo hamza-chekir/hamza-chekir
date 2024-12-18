@@ -5,6 +5,6 @@
 📱 Check out my web application: CyberEdu (Available on Play Store)
 
 🌐 Connect with me:
-📸 Instagram: [Your Instagram Handle]
-📘 Facebook: [Your Facebook Handle]
-💼 LinkedIn: [Your LinkedIn Profile]
+📸 Instagram: [_war_.e]
+📘 Facebook: [See Hamza]
+💼 LinkedIn: [COMING SOON]
