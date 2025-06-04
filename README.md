@@ -5,6 +5,8 @@
 📱 Check out my web application: CyberEdu (Available on Play Store)
 
 🌐 Connect with me:
-📸 Instagram: [_war_.e]
-📘 Facebook: [See Hamza]
-💼 LinkedIn: [COMING SOON]
+📸 Instagram: [_chkir_hamza]
+📘 Facebook: [Hamza Chekir]
+💼 LinkedIn: [Hamza Chekir]
+
+Currently Working For HTB 
